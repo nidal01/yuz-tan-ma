@@ -1,1 +1,1 @@
-# yuz-tan-ma
+# yuz-tanima
